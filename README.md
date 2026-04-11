@@ -1,6 +1,4 @@
-视频教程：https://www.youtube.com/watch?v=cSCIWjTsL3Y
-
-交流TG群：https://t.me/jackrun
+视频教程：https://www.youtube.com/watch?v=cSCIWjTsL3
 
 
 步骤：
